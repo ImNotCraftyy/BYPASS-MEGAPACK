@@ -1,10 +1,10 @@
 # BYPASS-MEGAPACK
 A HUGE stash of bypasses/unblocks inside a google drive folder.
 
-> BYP@SS MEGAPACK MADE BY imnotcraftyy & TALK SLIDE.
- >CONTRIBUTORS: NICKISAGAMER6, STXRBOY..., CR1ST1AN-USB.
-  > DISC0RD SERVER: https://discord.gg/9Z6xf5vrAG
-   > JOIN FOR MORE BYP@SSES, METHODS, UPDATES... AND MORE!
+BYP@SS MEGAPACK MADE BY imnotcraftyy & TALK SLIDE.
+CONTRIBUTORS: NICKISAGAMER6, STXRBOY..., CR1ST1AN-USB.
+DISC0RD SERVER: https://discord.gg/9Z6xf5vrAG
+JOIN FOR MORE BYP@SSES, METHODS, UPDATES... AND MORE!
 
 
 # TUTORIAL
@@ -28,7 +28,7 @@ yknow, its like finding a whole bunch of pencils on the floor and then putting t
 which basically means i find bypasses to put into a google drive folder so other people can find shit and download them
 
 without specific credits unless you request for it.
-because im too lazy to give credits.
+because im too lazy to give credits for like everything and anything i add.
 you can be mad at me.
 
 all i do is really just find shit and download it and put it into the megapack.
