@@ -1,5 +1,6 @@
 # BYPASS-MEGAPACK
 A HUGE stash of bypasses/unblocks inside a google drive folder.
+(link at the bottom. scroll down, make sure to read everything!)
 
 BYP@SS MEGAPACK MADE BY imnotcraftyy & TALK SLIDE.
 CONTRIBUTORS: NICKISAGAMER6, STXRBOY..., CR1ST1AN-USB.
@@ -49,3 +50,6 @@ uhhh msg me on discord
 https://discord.gg/9Z6xf5vrAG
 https://discord.gg/9Z6xf5vrAG
 https://discord.gg/9Z6xf5vrAG
+
+# -> LINK TO GOOGLE DRIVE FOLDER (BYPASS MEGAPACK) <-
+https://drive.google.com/drive/folders/1LTjRTtyhxi3fBpS2gxoLPxk3iUbVVdNK?usp=sharing
