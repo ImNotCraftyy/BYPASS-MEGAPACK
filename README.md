@@ -3,9 +3,11 @@ A HUGE stash of bypasses/unblocks inside a google drive folder.
 
 BYP@SS MEGAPACK MADE BY imnotcraftyy & TALK SLIDE.
 CONTRIBUTORS: NICKISAGAMER6, STXRBOY..., CR1ST1AN-USB.
-DISC0RD SERVER: https://discord.gg/9Z6xf5vrAG
+DISC0RD SERVER: https://discord.gg/9Z6xf5vrAG (if invalid, ask me for the invite w my discord: @imnotcraftyy)
 JOIN FOR MORE BYP@SSES, METHODS, UPDATES... AND MORE!
 
+any questions? ask me on discord!
+@imnotcraftyy
 
 # TUTORIAL
 BROWSE AND CHOOSE WHICH THINGS YOU WANT. REMEMBER, SOME OF THEM ARE FOR ADVANCED/EXPERTS ONLY. KNOW WHAT YOU ARE DOWNLOADING!
@@ -25,13 +27,13 @@ im a skid. but hey, i skid for you guys.
 yknow, its like finding a whole bunch of pencils on the floor and then putting them into a big bag for everyone to look at and grab
 ...more like stealing pencils...?
 
-which basically means i find bypasses to put into a google drive folder so other people can find shit and download them
-
-without specific credits unless you request for it.
+which basically means i find bypasses to put into a google drive folder so other people can find shit and download them without specific credits unless you request for it.
 because im too lazy to give credits for like everything and anything i add.
-you can be mad at me.
+you can be mad at me. i dont care.
 
 all i do is really just find shit and download it and put it into the megapack.
+
+everyone knows already lmfao
 
 # REQUEST CREDIT OR REMOVAL
 see your work in here??? or something you want thats yours removed????????? ORRR you just want credit?????/
@@ -42,3 +44,8 @@ it might take me a little to do the stuff,, but ill still credit/remove the thin
 # WANT TO ADD SOMETHING???
 uhhh msg me on discord
 @imnotcraftyy
+
+# JOIN THE SERVERRRRRRRRR FOR UPDATES AND MORE!!!!!111
+https://discord.gg/9Z6xf5vrAG
+https://discord.gg/9Z6xf5vrAG
+https://discord.gg/9Z6xf5vrAG
