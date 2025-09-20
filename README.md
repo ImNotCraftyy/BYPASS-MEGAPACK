@@ -38,3 +38,7 @@ see your work in here??? or something you want thats yours removed????????? ORRR
 
 request me in discord (imnotcraftyy) for removal or credit of your work inside the megapack!
 it might take me a little to do the stuff,, but ill still credit/remove the thing you want!
+
+# WANT TO ADD SOMETHING???
+uhhh msg me on discord
+@imnotcraftyy
